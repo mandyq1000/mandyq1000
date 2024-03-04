@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Manish</h1>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Titillium+Web&weight=800&size=24&duration=2000&pause=500&color=72F700&center=true&random=true&width=435&lines=Hi%2C+Manish+here+;or+the+gamers+call+me+SpooK)](https://git.io/typing-svg)
 <h3 align="center">A passionate developer from India</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=mandyq1000&label=Profile%20views&color=0e75b6&style=flat" alt="mandyq1000" /> </p>
