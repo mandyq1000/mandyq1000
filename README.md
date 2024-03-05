@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **manishpadmannavar@yahoo.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/manishpadmannavar/overlay/1708713713137/single-media-viewer/?profileId=ACoAACptxKIBhJsLYo_rrj6MoN6COmvyYAvPlpA](https://www.linkedin.com/in/manishpadmannavar/overlay/1708713713137/single-media-viewer/?profileId=ACoAACptxKIBhJsLYo_rrj6MoN6COmvyYAvPlpA)
+- 📄 Know about my experiences [LinkedIN](https://www.linkedin.com/in/manishpadmannavar/overlay/1708713713137/single-media-viewer/?profileId=ACoAACptxKIBhJsLYo_rrj6MoN6COmvyYAvPlpA)
 
 - ⚡ Fun fact **I was a professional e-sports player.**
 
